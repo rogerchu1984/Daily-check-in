@@ -5,3 +5,5 @@ Day 3 checked, excellent
 Day 4 3 issues closed today. Nice Sunday, nice weather.
 Day 5 nothing happened
 Day 6 busiday today
+Day 7 not checked
+Day 8 tired
