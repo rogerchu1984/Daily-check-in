@@ -8,3 +8,4 @@ Day 6 busiday today
 Day 7 not checked
 Day 8 tired
 Day 9 weekend start
+Day 10 Xi, backing
