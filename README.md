@@ -9,3 +9,4 @@ Day 7 not checked
 Day 8 tired
 Day 9 weekend start
 Day 10 Xi, backing
+20240123: extremely cold today
