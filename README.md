@@ -11,3 +11,4 @@ Day 9 weekend start
 Day 10 Xi, backing
 20240123: extremely cold today
 20240127: creazy week, big pressure
+20240129：better today. business trip tomorrow.
