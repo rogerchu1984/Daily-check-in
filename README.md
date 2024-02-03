@@ -13,3 +13,4 @@ Day 10 Xi, backing
 20240127: creazy week, big pressure
 20240129：better today. business trip tomorrow.
 20240130：busy day no food. 
+20240203: long week, high working load.
