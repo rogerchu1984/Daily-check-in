@@ -20,3 +20,4 @@ Day 10 Xi, backing
 20240208: Wish 2024 start
 20240210: First miss
 20240211：papapa
+badanddifficult
